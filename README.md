@@ -1,0 +1,6 @@
+- 👋 Olá, sou @thaliaalvs
+- 👀 Estou interessado em criar conexões e encontrar talentos 
+- 🌱 Atualmente estou aprendendo a usar o github (aceito ajuda)
+- 💞️ Procuro colaborar encontrando o emprego ideal para você
+- 📫 você pode entrar em contato comigo através do meu LinkedIn: https://www.linkedin.com/in/alvsthalia/ ou da minha pagina pessoal https://www.realizecomproposito.com.br/
+- ⚡ Curiosidade: comunicativa, adoro conhecer novos perfis, a louca do bicho, amo o meu trabalho <3 
